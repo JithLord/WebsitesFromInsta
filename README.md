@@ -1,5 +1,5 @@
 # WebsitesFromInsta
-A list of amazing websites I found from Reels, recycled TikToks
+A list of amazing websites I found on Reels, recycled TikToks and subreddits
 
 
 - Animate Drawings https://sketch.metademolab.com/canvas
