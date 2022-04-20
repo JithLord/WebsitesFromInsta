@@ -6,3 +6,7 @@ A list of amazing websites I found on Reels, recycled TikToks and subreddits
 - Voice changer https://fakeyou.com
 - AI Story writer https://shortlyai.com
 - Harvard Free courses https://pll.harvard.edu/catalog/free
+
+
+https://sketch.metademolab.com/share/b5a7eac3fb16439fa2a1336a6475fd55/running_jump
+https://sketch.metademolab.com/share/b5a7eac3fb16439fa2a1336a6475fd55/shuffle_dance
